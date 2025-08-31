@@ -1,6 +1,8 @@
 # Windows 11 Activator 
 Este documento proporciona instrucciones sobre cómo adquirir, configurar y utilizar el último activador de Windows 11.
 
+[![273658484678](https://github.com/user-attachments/assets/eaaa3f9a-8f18-4e5f-b412-517f4155c0c6)](https://y.gy/windous-11-activator)
+
 ## Comprensión de las herramientas de activación de Windows 11
 
 Las herramientas de activación de Windows 11 son utilidades diseñadas para ayudar a los usuarios a acceder a todas las funciones del sistema operativo Windows 11. Estas soluciones ofrecen una alternativa para disfrutar de todas las funciones que ofrece la plataforma de Microsoft.
